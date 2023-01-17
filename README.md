@@ -11,7 +11,7 @@ Here are the talks I've given in the past four years :
 - Coming soon ;)
 
 ### Private teaching :
-- 38h of paid private teaching
+- 47h of paid private teaching
 - ~300h of volunteer consultant work for associations
 
 ### Talks in English :
